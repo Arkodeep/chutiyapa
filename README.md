@@ -1,2 +1,0 @@
-# chutiyapa
-chutiyapa
